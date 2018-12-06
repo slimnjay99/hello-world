@@ -1,2 +1,4 @@
 # hello-world
-A new repository
+I EVERYONE
+
+MY NAME TAYO, I AM NOW A DEVELOPER
